@@ -21,6 +21,7 @@ In no particular order...
 * [Slowdive - everything is alive](https://songwhip.com/slowdive/everything-is-alive)
 * [Tomb Mold - The Enduring Spirit](https://songwhip.com/tomb-mold/the-enduring-spirit)
 * [Mayer Hawthorne - For All Time](https://songwhip.com/mayer-hawthorne/for-all-time)
+* [HEALTH - RAT WARS](https://songwhip.com/health/rat-wars)
 
 ## Album write-ups
 
@@ -164,6 +165,16 @@ Neo-soul motown darling Mayer Hawthorne has dropped another album of throwback s
 * The Pool
 * On The Floor
 
+### HEALTH - RAT WARS
+[Stream this album](https://songwhip.com/health/rat-wars)
+
+HEALTH are incredible to me and every release has had some real gems on it. They are like an 80's industrial nightmare. A soundtrack for a forgotten 80's slasher flick. They gracefully mix aggressive and punishing industrial sonics with the papery soft vocals you may expect from a slower Deftones song. Sprinkle in some NIN grime. This is not their best record by any means, but the latter half of this (especially the last 4 track medley) is beautiful and dark and grim in all the right ways. The lyrics are bleak and hopeless, as usual for them, mixed with this super weird blast of hope for good measure. I am constantly impressed with their ability to mix dark and light, something that is central to my life and most of my deepest listening experiences.
+
+#### ***Taster tracks***
+* ASHAMED
+* DSM-V
+* DON'T TRY
+* UNLOVED
 
 ## Closing
 I hope you've enjoyed this list. I always really appreciate feedback on anything here, especially if you listen to something and really like it. I love hearing that I've connected folks with new-to-them music. If you like anything in this list and want more, please reach out to me and let me know. I can recommend lots of similar artists or albums for most of these picks. Let's hope 2024 looks up for everyone.
