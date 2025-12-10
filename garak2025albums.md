@@ -22,7 +22,7 @@ In no particular order...
 * [SG Lewis - Anemoia](https://album.link/s/3kse3e9XxmIedJb9bfjErH)
 * [Deftones - private music](https://album.link/s/1gmWnG5TeRj91Tdm2lpEvJ)
 * [Deafheaven - Lonely People With Power](https://album.link/s/5Eh3xMVdGFAUiYwuoPOzXc)
-* [SZA - SOS: Lana](https://album.link/s/1Q5WON8dw2JFLP5JVQXu1e)
+* [SZA - SOS Deluxe: Lana](https://album.link/s/1Q5WON8dw2JFLP5JVQXu1e)
 * [FACS - Wish Defense](https://album.link/s/1IBEyeJVvxOuamN4ngPtDx)
 * [Cloakroom - Last Leg of the Human Table](https://album.link/s/71Hy1xx5UXkMPZ6QAZ4SG8)
 * [Miami Horror - We Always Had Tomorrow](https://album.link/s/0AQL4gTk7w6UdaNqQCz4ih)
