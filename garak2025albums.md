@@ -29,15 +29,6 @@ In no particular order...
 
 ## Album write-ups
 
-### Sample Band - Sample Album
-[Stream this album](https://album.link/TKTK)
-
-TKTK writeup
-
-#### ***Taster tracks***
-* TKTK
-* TKTK
-
 ### Snarky Puppy - Somni
 [Stream this album](https://album.link/s/72Tr4gYIAko7djIwgfS4i1)
 
